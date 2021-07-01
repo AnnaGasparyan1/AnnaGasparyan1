@@ -4,4 +4,4 @@ I'm Anna, _fantastic_ Product Operations Manager, who's keen on setting up excel
 
 ## Get in touch
 
-- Linkedin: (https://www.linkedin.com/in/anna-gasparyan-1ba701125/)
+- Linkedin: https://www.linkedin.com/in/anna-gasparyan-1ba701125/
